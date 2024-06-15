@@ -25,3 +25,7 @@ When you've completed the easy version, you're ready to tackle the hard version.
 
 x$d24g*f9
 And every time you generate a password, the positions of the symbols, numbers, and letters are different.
+
+email : ayooluwaebun2006@gmail.com
+
+Follow on twitter :[ @kantedg8](https://x.com/Kantedg8)
